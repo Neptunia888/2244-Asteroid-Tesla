@@ -1,0 +1,2 @@
+# 2244-Asteroid-Tesla
+Nikola Tesla  named after the inventor electrical engineer and mechanical engineer and electrician mathematician  and scientists he was born on July 10th 1856 at 1943 Hickory Knoll training and plasma balls of the father radio and from long distances of millions of miles away  j contacted  Jupiter and Mars and Tamo Daleko was played this Serbian folks on in his funeral and 1943 his funeral was held on the 8th of January  at saint Matthew's Church in New
